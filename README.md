@@ -61,7 +61,7 @@ Detail-oriented and friendly barista with extensive experience in customer servi
 
 - **Customer Service Excellence** – Delivering friendly and personalized service to ensure guest satisfaction.
 - **Espresso Machine Operation** – Skilled in using commercial espresso machines and brewing equipment.
-- **Coffee Preparation and Art** – Expertise in preparing a wide variety of coffee beverages, including espresso drinks, cold brew, and pour-overs.
+- **Coffee Preparation** – Expertise in preparing a wide variety of coffee beverages, including espresso drinks, cold brew, and pour-overs.
 - **Team Leadership and Training** – Experience training new team members and fostering a positive team environment.
 - **Point-of-Sale (POS) Systems** – Proficient in operating and troubleshooting POS systems like Toast, Aloha, and Square for efficient order management.
 - **Time Management and Multitasking** – Thriving in fast-paced environments while maintaining quality and efficiency.
