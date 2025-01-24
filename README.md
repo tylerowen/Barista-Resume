@@ -14,6 +14,11 @@ Detail-oriented and friendly barista with extensive experience in customer servi
 
 ### Professional Experience
 
+**Outlier AI** | Writing Evaluator Tier 3 - Remote *(Jun 2024 - present)*
+- Worked with White Wolf RHLF to help train their AI-Language model through writing prompts, rating responses according to a rubric, and rewriting responses according to errors  
+- Used Discourse to stay up-to-date on technical issues, tasking availability, upcoming training webinars, and communicated with QM's and fellow taskers  
+- Read feedback on tasks and corrected errors in workflow  
+
 **Radix House Coffee Shop** | Team Lead Barista and Budtender - Austin, Texas *(Apr 2023 - Sep 2024)*
 - Led training programs for new hires, ensuring compliance with operational standards and enhancing team performance
 - Managed a team in creating and executing projects to improve service delivery, demonstrating leadership and communication skills
