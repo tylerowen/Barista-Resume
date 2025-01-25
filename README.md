@@ -71,6 +71,11 @@ Detail-oriented and friendly barista with extensive experience in customer servi
 - **Point-of-Sale (POS) Systems** – Proficient in operating and troubleshooting POS systems like Toast, Aloha, and Square for efficient order management.
 - **Time Management and Multitasking** – Thriving in fast-paced environments while maintaining quality and efficiency.
 
+### Certifications
+- TABC 
+- Food Handler's
+- Latte art class from Little City Roasters
+
  ### Education
 
 **Bachelor of Arts in English**  
