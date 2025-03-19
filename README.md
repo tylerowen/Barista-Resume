@@ -77,7 +77,7 @@ Friendly and detail-oriented barista with a decade of front-of-house experience 
 - Food Handler's
 - Latte art class from Little City Roasters
 
- ### Education
+### Education
 
 **Bachelor of Arts in English**  
 The University of Texas at Austin, Texas  
