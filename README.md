@@ -7,7 +7,8 @@ tyler.s.owen92@gmail.com
 
 ### Objective
 
-Detail-oriented and friendly barista with extensive experience in customer service, drink preparation, and team leadership. Seeking a barista role to create exceptional customer experiences while fostering teamwork and supporting operational excellence.
+Friendly and detail-oriented barista with a decade of front-of-house experience in the food industry. I’ve worked almost every role in a café and know that a little empathy goes a long way—helping guests feel welcome and making work better for my team. Coffee and food aren’t just part of my job—I genuinely enjoy learning about them and sharing that passion with everyone.
+
 
 ---
 
