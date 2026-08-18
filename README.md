@@ -7,15 +7,22 @@ tyler.s.owen92@gmail.com
 
 ### Objective
 
-Friendly and detail-oriented barista with a decade of front-of-house experience in the food industry. I’ve worked almost every role in a café and know that a little empathy goes a long way—helping guests feel welcome and making work better for my team. Coffee and food aren’t just part of my job—I genuinely enjoy learning about them and sharing that passion with everyone.
-
+Engaging bartender with over a decade behind the bar. Who likes understanding why a drink works, not just how to make it — and making guests feel like regulars from the first pour. Steady under pressure, genuinely into the craft, easy to work with.
 
 ---
 
 
 ### Professional Experience
 
-**Outlier AI** | Writing Evaluator Tier 3 - Remote *(Jun 2024 - present)*
+**Captain Quackenbush's Bakery and Coffee House** | Bartender - Austin, Texas *(Apr 2025 - June 2026)*
+- Made alcoholic drinks to order during regular evening hours as well as during events held at the location 
+- Was responsible for A/V set-up for certain events, like setting up the projector, turning on the sound board and power in the  correct order, and setting up mic stands as well as working the sound booth 
+- Performed my duties with the health code in mind and cleaned the equipment and building as per expectations 
+- Recorded the happenings of my shift to my manager every night, as well as the revenue, and sent it over Slack 
+- Performed regular bartender duties by keeping tabs on how much each customer drank and cutting them off if necessary  
+- Responsible for getting the public out of the building promptly at the end of the night 
+
+**Outlier AI** | Writing Evaluator Tier 3 - Remote *(Jun 2024 - Dec 2024)*
 - Worked in multiple project to train various companies' AI-Language model through writing prompts, rating responses according to a rubric, and rewriting responses according to errors  
 - Used Discourse to stay up-to-date on technical issues, tasking availability, upcoming training webinars, and communicated with QM's and fellow taskers  
 - Read feedback on tasks and corrected errors in workflow  
@@ -65,17 +72,19 @@ Friendly and detail-oriented barista with a decade of front-of-house experience 
 
 ### Skills
 
-- **Customer Service Excellence** – Delivering friendly and personalized service to ensure guest satisfaction.
-- **Espresso Machine Operation** – Skilled in using commercial espresso machines and brewing equipment.
-- **Coffee Preparation** – Expertise in preparing a wide variety of coffee beverages, including espresso drinks, cold brew, and pour-overs.
-- **Team Leadership and Training** – Experience training new team members and fostering a positive team environment.
-- **Point-of-Sale (POS) Systems** – Proficient in operating and troubleshooting POS systems like Toast, Aloha, and Square for efficient order management.
-- **Time Management and Multitasking** – Thriving in fast-paced environments while maintaining quality and efficiency.
+- **Customer Service Excellence** – Delivering friendly and personalized service to ensure guest satisfaction
+- **Bartending** - Running counter and cocktail service while upholding excellence of drink making and engaging and educating guests 
+- **Espresso Machine Operation** – Skilled in using commercial espresso machines and brewing equipment
+- **Coffee Preparation** – Expertise in preparing a wide variety of coffee beverages, including espresso drinks, cold brew, and pour-overs
+- **Team Leadership and Training** – Experience training new team members and fostering a positive team environment
+- **Point-of-Sale (POS) Systems** – Proficient in operating and troubleshooting POS systems like Toast, Aloha, and Square for efficient order management
+- **Time Management and Multitasking** – Thriving in fast-paced environments while maintaining quality and efficiency
 
 ### Certifications
 - TABC 
 - Food Handler's
 - Latte art class from Little City Roasters
+- Extensive spirit and wine tastings
 
 ### Education
 
