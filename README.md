@@ -7,8 +7,7 @@ tyler.s.owen92@gmail.com
 
 ### Objective
 
-Engaging bartender with over a decade behind the bar. Who likes understanding why a drink works, not just how to make it — and making guests feel like regulars from the first pour. Steady under pressure, genuinely into the craft, easy to work with.
-
+Beverage-focused service professional with 15 years in food service — bartending, pouring beer, and building strong cocktail knowledge in a fine dining setting. I approach drinks methodically, understanding structure and balance rather than just following steps. Calm under pressure, easy to work alongside, and focused on hospitality that makes guests feel taken care of.
 ---
 
 
