@@ -15,7 +15,7 @@ tyler.s.owen92@gmail.com
 ### Professional Experience
 
 **Captain Quackenbush's Bakery and Coffee House** | Bartender - Austin, Texas *(Apr 2025 - June 2026)*
-- Made alcoholic drinks to order during regular evening hours as well as during events held at the location 
+- Made craft cocktails to order during regular evening hours as well as during busy events held at the location 
 - Was responsible for A/V set-up for certain events, like setting up the projector, turning on the sound board and power in the  correct order, and setting up mic stands as well as working the sound booth 
 - Performed my duties with the health code in mind and cleaned the equipment and building as per expectations 
 - Recorded the happenings of my shift to my manager every night, as well as the revenue, and sent it over Slack 
