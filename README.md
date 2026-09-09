@@ -7,7 +7,8 @@ tyler.s.owen92@gmail.com
 
 ### Objective
 
-Beverage-focused service professional with 15 years in food service — bartending, pouring beer, and building strong cocktail knowledge in a fine dining setting. I approach drinks methodically, understanding structure and balance rather than just following steps. Calm under pressure, easy to work alongside, and focused on hospitality that makes guests feel taken care of.
+**Strong working knowledge of spirits and cocktails, built through bartending, beer service, and a fine dining role that demanded real command of the drink list. I approach cocktails by understanding why they work, not just how to make them — and stay calm and efficient even when things get busy.**
+
 ---
 
 
