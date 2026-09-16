@@ -7,7 +7,7 @@ tyler.s.owen92@gmail.com
 
 ### Objective
 
-**Strong working knowledge of spirits and cocktails, built through bartending, beer service, and a fine dining role that demanded real command of the drink list. I approach cocktails by understanding why they work, not just how to make them — and stay calm and efficient even when things get busy.**
+**Experienced Bartender with strong working knowledge of spirits and cocktails, built through wine experience, event bartending, and a fine dining role that demanded real command of the drink list. I approach cocktails by understanding why they work, not just how to make them and stay calm and efficient even when things get busy. Proficient with counter and cocktail service**
 
 ---
 
@@ -15,58 +15,31 @@ tyler.s.owen92@gmail.com
 ### Professional Experience
 
 **Captain Quackenbush's Bakery and Coffee House** | Bartender - Austin, Texas *(Apr 2025 - June 2026)*
-- Made craft cocktails to order during regular evening hours as well as during busy events held at the location 
-- Was responsible for A/V set-up for certain events, like setting up the projector, turning on the sound board and power in the  correct order, and setting up mic stands as well as working the sound booth 
-- Performed my duties with the health code in mind and cleaned the equipment and building as per expectations 
-- Recorded the happenings of my shift to my manager every night, as well as the revenue, and sent it over Slack 
-- Performed regular bartender duties by keeping tabs on how much each customer drank and cutting them off if necessary  
-- Responsible for getting the public out of the building promptly at the end of the night 
-
-**Outlier AI** | Writing Evaluator Tier 3 - Remote *(Jun 2024 - Dec 2024)*
-- Worked in multiple project to train various companies' AI-Language model through writing prompts, rating responses according to a rubric, and rewriting responses according to errors  
-- Used Discourse to stay up-to-date on technical issues, tasking availability, upcoming training webinars, and communicated with QM's and fellow taskers  
-- Read feedback on tasks and corrected errors in workflow  
+- Crafted cocktails to order during regular hours and high-volume events, adapting to guest requests on the fly
+  seasonal cocktail menus each quarter and created drink specials to move through overstocked liqueurs
+- Tracked bar inventory and proactively flagged low stock to management
+- Exercised discretion in monitoring guest alcohol consumption to ensure safety and compliance with health code standards
+- Assisted with A/V setup for events, including sound board, projector, canned lighting, and mic stands
 
 **Radix House Coffee Shop** | Team Lead Barista and Budtender - Austin, Texas *(Apr 2023 - Sep 2024)*
-- Led training programs for new hires, ensuring compliance with operational standards and enhancing team performance
-- Managed a team in creating and executing projects to improve service delivery, demonstrating leadership and communication skills
-- Utilized communication tools like Slack for daily operations
-- Managed and executed critical documentation tasks to support company operations
-- Developed and optimized processes for the employee handbook to enhance workplace efficiency
+- Trained new hires on operational standards and compliance, onboarding staff on drink recipes, portioning, and bar procedures
+- Led cross-functional projects aimed at improving service delivery, drawing on the kind of on-the-fly problem-solving that keeps service moving during a rush 
+- Coordinated daily operations through Slack, similar to the nightly shift reporting and team communication expected behind a bar 
+- Managed documentation and compliance tasks, reflecting strong habits around regulation-heavy environments 
+- Developed and optimized the employee handbook, showing an eye for process improvement that applies to bar workflow, training materials, and stock systems
 
-**Salty Sow** | Server - Austin, Texas *(Sep 2022 - Feb 2023)*
-- Made guests feel welcome and informed through authentic interactions
-- Proactively upsold menu items with consideration for individual preferences and allergies
-- Collaborated with team members to ensure seamless service and addressed guest questions across the restaurant
+**Diner Bar** | Bartender - Austin, Texas *(Jul 2022 - Sep 2022)*
+- Built cocktails from the ground up on request, using a working knowledge of spirits and technique to improvise drinks that fit each guest
+- Ran bar operations solo during high-volume fine dining service, managing pace and quality under pressure
+- Stayed current on a complex, ever-changing menu, adapting drink recommendations as offerings shifted
+- Maintained composure and professionalism through demanding, fast-moving shifts
 
-**Diner Bar** | Server - Austin, Texas *(Jul 2022 - Sep 2022)*
-- Provided guests with a fine dining experience by ensuring comfort and delivering excellent service in an authentic, conversational manner
-- Maintained a detailed knowledge of the menu with attention to detail, including traditional dish preparation techniques and ingredient sourcing
-- Effectively communicated specials and menu upgrades to guests and increased sales
+**Vino Vino** | Bartender- Austin, Texas *(Dec 2014 - Nov 2015)*
+- Applied deep knowledge of Old World wines, reasoning through pairings
+- Mixed cocktails with a strong grasp of spirit categories and technique, drawing on hands-on experience with classic spirit-forward drinks
+- Kept pace with a fine dining wine and cocktail program, staying sharp on menu changes and pairing logic
+- Brought a professional, polished presence to service while keeping the vibe approachable
 
-**Caroline** | Barista - Austin, Texas *(Aug 2019 - Apr 2020)*
-- Served multiple roles at Caroline's Coffeehouse, including barista, server, and front desk/information assistant, both individually and with coworkers
-- Possessed working knowledge of Aloft hotel policies and amenities, enhancing guest experiences
-- Trained high school interns and new hires, developing their skills and integrating them into the team
-
-**Irene's** | Barista - Austin, Texas *(Nov 2016 - Dec 2018)*
-- Acted as concierge and greeted my guests warmly while providing information and assistance when needed
-- Collaborated with co-workers and management to ensure a high-quality dining experience
-- Maintained quality customer service while preparing excellent coffee drinks
-
-**Vino Vino** | Hostess and Server - Austin, Texas *(Dec 2014 - Nov 2015)*
-- Achieved nightly sales goals through direct customer engagement, product knowledge, and empathetic communication
-- Managed and enhanced the service of 25+ parties in a fast-paced environment
-- Efficiently handled food delivery and quality assurance 
-
-**Red River Cafe** | Server - Austin, Texas *(Aug 2012 - Jun 2015)*
-- Ensured adherence to federal and state sanitation standards for customer and staff safety
-- Devised copy, coordinated, and executed the artistic direction of the specials board and restaurant advertising
-- Managed register balances, calculated, and distributed tips accurately to staff members
-
-**Arpeggio Grill** | Server - Austin, Texas *(Aug 2012 - May 2012)*
-- Maintained knowledge of menu items, considering food allergies and sensitivities, and made personalized recommendations based on customer preferences
-- Performed ad hoc tasks to ensure the restaurant's appearance and sanitary conditions
 
 ---
 
